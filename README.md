@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-Quant, mainly focused on trend following stratigies also a privacy advicate and have a keen interest in blockchain technology.
+Financial engineer mainly focused on trend following stratigies also a privacy advicate and have a keen interest in blockchain technology.
 
 
 
